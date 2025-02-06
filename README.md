@@ -9,7 +9,7 @@ Only accepting payment in Robux based off Devex Rates
 Rarely accept percentage based pay
 
 ## What to expect
-- **Clear Communication:** I will always be transparent with you
+- **Clear Communication:** 100% transparency 
 - **Updates:** See progress photos every day 
 - **Customization:** I can customize any feature I create to your liking
 - **Free refund:** Free refund if I can't do the task or if it ends up being buggy.
